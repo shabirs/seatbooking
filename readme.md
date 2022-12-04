@@ -1,1 +1,1 @@
-Details about the application
+Details about the application!
